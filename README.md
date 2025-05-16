@@ -28,7 +28,7 @@ iOS下载备用地址 https://asfasf.hp5e3a8v.top （禁止直接点击访问）
 
 邮箱2： otomcd1987@gmail.com
 
-方法3:关注黑料六点半官方推特 https://https://x.com/Heiliao630
+方法3:关注黑料六点半官方推特 https://x.com/Heiliao630
 
 
 常见问题：
