@@ -28,7 +28,7 @@ iOS下载备用地址 https://asfasf.hp5e3a8v.top （禁止直接点击访问）
 
 邮箱2： otomcd1987@gmail.com
 
-方法3:关注51吃瓜官方推特 https://https://x.com/Heiliao630
+方法3:关注黑料六点半官方推特 https://https://x.com/Heiliao630
 
 
 常见问题：
@@ -41,5 +41,3 @@ iOS下载备用地址 https://asfasf.hp5e3a8v.top （禁止直接点击访问）
 
 3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
 
-4.下载科学上网工具：狗急加速器 https://https://goj666.com （禁止直接点击访问）请复制链接粘贴到浏览器
-请把网址或者群组分享给身边有需要的人 ，您的转发、分享是我们前进的动力😘～
