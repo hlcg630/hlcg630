@@ -8,7 +8,7 @@
 
 备用地址2： http://ybxzzbb8.cc （禁止直接点击访问）请复制链接粘贴到浏览器
 
-黑料六点半免费APP下载地址：dsgsde.fvqaga4g.cc
+黑料六点半免费APP下载地址：https://dsgsde.fvqaga4g.cc
 
 黑料六点半App最新地址 https://lege.gfhv8ptcp.com （禁止直接点击访问）请复制链接粘贴到浏览器
 
